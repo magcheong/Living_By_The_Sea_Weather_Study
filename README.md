@@ -16,6 +16,4 @@ My curiosity is piqued. I need to satisfy this curiosity: is it indeed cooler ne
 Should I move near the coast?
 
 
-![image](https://user-images.githubusercontent.com/85469157/152812161-7caf9983-1a23-4398-9c22-1bba9b021311.png)
-
 
